@@ -1,4 +1,9 @@
 ### Hi there 👋
+I am a Indie video game creater trying to make a living in the Bronx.
+
+
+
+my wife left me
 
 <!--
 **Applesyummyumm/Applesyummyumm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
